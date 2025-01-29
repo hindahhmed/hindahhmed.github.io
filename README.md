@@ -2,6 +2,8 @@
 
 ## Assignment 1 
 
+### What's in my bag?
+
 <img width="759" alt="bag" src="https://github.com/user-attachments/assets/dba00115-c7be-42d4-b95d-145b785e3665" />
 
 1 - My Mom's tote bag from 2004 
