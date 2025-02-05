@@ -37,3 +37,7 @@
 15 - Hand Sanitizer 
 
 16 - Panadol Extra 
+
+## Assignment 2 
+
+BBC Connections Presentation: https://www.canva.com/design/DAGeKo_tt84/4YDk3en8MS5eGtJsgfqrig/view?utm_content=DAGeKo_tt84&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h0cb4a01482 
