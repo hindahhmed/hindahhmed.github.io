@@ -41,3 +41,7 @@
 ## Assignment 2 
 
 BBC Connections Presentation: https://www.canva.com/design/DAGeKo_tt84/4YDk3en8MS5eGtJsgfqrig/view?utm_content=DAGeKo_tt84&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h0cb4a01482 
+
+## Assignment 3 
+
+Pessimist's Archive Presentation: https://www.canva.com/design/DAGejyGEQjc/9Q7Z9zxDbMHW9uf8TY1Cmg/view?utm_content=DAGejyGEQjc&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h3a7b9879e1 
