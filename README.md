@@ -49,3 +49,13 @@ Pessimist's Archive Presentation: https://www.canva.com/design/DAGejyGEQjc/9Q7Z9
 ## Assignment 4 
 
 Golden Age Presentation: https://www.canva.com/design/DAGfd6-TRsI/nety_W_JzCPq15JKUdwyfw/view?utm_content=DAGfd6-TRsI&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=haf5ab0175a
+
+## Assignment 5 
+
+Designers Presentation: https://www.canva.com/design/DAGl5nj5qU8/c4tWzUjyuYj0NA7LZFmE6g/view?utm_content=DAGl5nj5qU8&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hd6d698f3dc
+
+## Assignment 6
+
+Architect Presentation: https://www.canva.com/design/DAGmg5t0wNw/MU3yLcKhp6U0x3qDojgXlw/edit?utm_content=DAGmg5t0wNw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+
